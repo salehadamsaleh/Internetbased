@@ -1,2 +1,3 @@
 # Internetbased
-https://salehadamsaleh.github.io/Internetbased/Internetbased
+https://salehadamsaleh.github.io/Internetbased/ınternetbased
+
